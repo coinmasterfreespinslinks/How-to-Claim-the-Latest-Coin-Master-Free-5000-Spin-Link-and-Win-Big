@@ -4,6 +4,8 @@
 
 Coin Master is an incredibly popular mobile game that has captured the attention of millions worldwide. The game combines elements of slot machines, building villages, and attacking other players, all in a fun, engaging package. As you progress in the game, spins are crucial for success—they let you attack, raid, or defend your village and help you collect valuable items for building new villages. But here's the best part: you don’t have to break the bank to get more spins. By claiming special free spin links, you can skyrocket your game progress without spending a single penny!
 
+### [✅CLICK HERE TO GET NOW FREE!](https://edris2025.github.io/spins/)
+
 ## How to Claim the Latest Coin Master Free 5000 Spin Link in 2024
 
 First, let's talk about how to claim these incredible free spins! The process is simple, and anyone can do it in just a few minutes. Here’s a step-by-step guide to help you claim your **free 5000 spins** in Coin Master right now.
